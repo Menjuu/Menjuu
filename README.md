@@ -1,4 +1,4 @@
-Name is Daniel. Currently 20
+Name is Daniel. Currently 20.
 12.01.2002
 
 You can reach me through Discord
